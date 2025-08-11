@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **omarora1603@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1D6vuMI6tYDSZygNcB3CCPbVKjWIru4Kq/view?usp=drive_link](https://drive.google.com/file/d/1D6vuMI6tYDSZygNcB3CCPbVKjWIru4Kq/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ERi66MIonQX33GAQ7xNn-NVaJ30-_y1q/view?usp=sharing](https://drive.google.com/file/d/1ERi66MIonQX33GAQ7xNn-NVaJ30-_y1q/view?usp=sharing)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
